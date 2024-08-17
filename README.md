@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @estudiobibliaencasa
+- 👀 I’m interested in Study the Bible
+- 🌱 I’m currently learning Genesis
